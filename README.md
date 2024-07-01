@@ -1,1 +1,1 @@
-play online https://kodemeister-yt.github.io/Dash.github.io/
+play online https://philippe-06.github.io/Geogame/
